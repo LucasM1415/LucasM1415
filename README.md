@@ -1,5 +1,5 @@
  
-### Oi... (O_O)
+### Oi... (o_o)
  
 <div align="center">
   <a href="https://github.com/Oi... (O_O) ">
